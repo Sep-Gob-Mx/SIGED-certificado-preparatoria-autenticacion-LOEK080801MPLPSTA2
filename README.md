@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LOEK080801MPLPSTA2
+LOEK080801MPLPSTA2
